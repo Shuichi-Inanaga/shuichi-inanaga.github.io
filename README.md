@@ -1,0 +1,1 @@
+# shuichi-inanaga.github.io
